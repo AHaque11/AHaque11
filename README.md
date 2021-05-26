@@ -4,6 +4,6 @@ I'm a CS student who recently began taking programming courses. So far, I've wor
 
 
 
-A hobby of mine: check out my Youtube channel if you're interested in flamenco/Spanish translation: https://www.youtube.com/channel/UC2ScLnGpccdi73kbWXxXcAg/videos 💃💃
+A hobby of mine - check out my Youtube channel if you're interested in flamenco/Spanish translation: https://www.youtube.com/channel/UC2ScLnGpccdi73kbWXxXcAg/videos 💃💃
 
 
